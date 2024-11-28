@@ -2,7 +2,7 @@
 
 Coin Master, the popular mobile game that blends slot machine mechanics with a fun and addictive adventure, has taken the gaming world by storm. Whether you're battling pirates, building your village, or spinning the slot machine to earn more coins, there's always something exciting to do. But what if there was a way to accelerate your progress, gather resources faster, and unlock exclusive rewards without spending a penny? Well, you're in luck! As part of a special promotion for December 2024, Coin Master is offering **Free 5000 Spins** through an exclusive offer. But how can you claim this incredible bonus? Read on to find out how to unlock this free offer, how the Coin Master game works, and why now is the perfect time to join in the fun!
 
-### [👉CLICK HERE TO GET NOW FREE](https://jackmarkjr.github.io/spins/)
+### [👉CLICK HERE TO GET NOW FREE👈](https://freeforyou.xyz/cms/)
 
 ### What is Coin Master?
 
